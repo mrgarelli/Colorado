@@ -12,7 +12,7 @@ Below I have included a collection of travel logistics that I will continue to u
 
 # Travel Logistics
 
-The address is [1900 Bridge Ln, Steamboat Springs, CO 80487](https://www.google.com/maps/search/1900+Bridge+Ln,+Steamboat+Springs,+CO+80487/@40.494811,-106.9104126,12z) Unit \#1
+You can find us at the [hot dog academy](https://www.google.com/maps/place/Hot+Dog+Academy/@40.4961214,-106.8744672,14z/data=!4m8!1m2!2m1!1sSchool!3m4!1s0x87426973a84ea61f:0xada6dcf968857642!8m2!3d40.496082!4d-106.856904)
 
 Looks like there are two options to get there:
   - Yampa Valley Regional Airport also know as Hayden (HDN) Airport
