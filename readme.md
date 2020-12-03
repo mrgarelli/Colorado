@@ -27,3 +27,9 @@ Looks like there are two options to get there:
     - [google flights Chicago to Denver](https://www.google.com/flights?hl=en#flt=/m/01_d4.DEN.2021-01-14*DEN./m/01_d4.2021-01-18;c:USD;e:1;sd:1;t:f)
 
 if you fly into hayden, I can pick you up from airport.
+
+# During Your Stay
+ - Family dinners are common, please come with a recipe in mind
+
+# After Your Stay
+ - Don't forget to leave us a review on google maps! [hot dog academy](https://www.google.com/maps/place/Hot+Dog+Academy/@40.4961214,-106.8744672,14z/data=!4m8!1m2!2m1!1sSchool!3m4!1s0x87426973a84ea61f:0xada6dcf968857642!8m2!3d40.496082!4d-106.856904)
