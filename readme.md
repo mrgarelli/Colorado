@@ -1,12 +1,15 @@
 ![mountain vista](./.rsrc/steamboat_mountain_village.png)
 
-# Visit me in Colorado
+visit [Matt](https://www.instagram.com/matt.garelli/), [Emma](https://www.instagram.com/em_garelli/), [Ranger](https://www.instagram.com/ndecker9/), [TMFK](https://www.instagram.com/tomkimbrell1/) & [Julezz Vern](https://www.instagram.com/julien_kb/) in Steamboat Springs
 
-Hey, friends! remember when I said you should come visit me in CO and you thought - "Damn that sounds fun, but I bet he will never follow up & I will never get to shred some of that sweet, sweet pow"
+# Ikon Pass
+### [December 10 deadline for Ikon Purchases!](https://www.instagram.com/p/CIV8XZjAMqg/?igshid=g62hoz8d22wv)
 
-Well guess what, you're in luck, I did follow up (at least with most of you I think)!
+* The [Ikon Passes](https://www.ikonpass.com/en/shop-passes) seem to be some of the best value packages to get on the mountain this year
+	- [4 day](https://www.ikonpass.com/en/shop-passes/ikon-session-pass-4-day-2020-2021) would probably make sense for an aggressive long weekend or a chill week
+* Day passes will NOT be sold on the mountain this year (so you need to get Ikon if you want to shred pow)
 
-Yep I really want you to come visit so grab your shred-mobile, put a time on my calendar, eat a power bar, stay healthy, swig some water, huck a quick sick 180 from normal life and fly out.
+Grab your shred-mobile, put a time on my calendar, eat a power bar, stay healthy, swig some water, huck a quick sick 180 from normal life and fly out.
 
 Below I have included a collection of travel logistics that I will continue to update as I learn more about this wholesome adventure. So stay tuned and the rest is up to you. :)
 
@@ -22,7 +25,4 @@ Looks like there are two options to get there:
     - [3 hr 22 min drive](https://www.google.com/maps/dir/Denver+International+Airport,+Denver,+CO/Grand+Lake+Plumbing+Co,+1900+Bridge+Ln,+Steamboat+Springs,+CO+80487/@40.0611699,-106.8861266,8z/data=!3m1!4b1!4m14!4m13!1m5!1m1!1s0x876c67ef9bb9d89f:0x400fd836808e49bc!2m2!1d-104.6728573!2d39.8487935!1m5!1m1!1s0x8742688eb79fea43:0xe634543384fa9a79!2m2!1d-106.8566089!2d40.496138!3e0)
     - [google flights Chicago to Denver](https://www.google.com/flights?hl=en#flt=/m/01_d4.DEN.2021-01-14*DEN./m/01_d4.2021-01-18;c:USD;e:1;sd:1;t:f)
 
-
-The [Ikon Passes](https://www.ikonpass.com/en/shop-passes) seem to be some of the best value packages to get on the mountain this year
-  - [4 day](https://www.ikonpass.com/en/shop-passes/ikon-session-pass-4-day-2020-2021) would probably make sense for an aggressive long weekend or a chill week
-  - As a side note it doesn't seem, as of now, that the mountain will be offering single day passes
+if you fly into hayden, I can pick you up from airport.
