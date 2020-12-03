@@ -2,12 +2,13 @@
 
 visit [Matt](https://www.instagram.com/matt.garelli/), [Emma](https://www.instagram.com/em_garelli/), [Ranger](https://www.instagram.com/ndecker9/), [TMFK](https://www.instagram.com/tomkimbrell1/) & [Julezz Vern](https://www.instagram.com/julien_kb/) in Steamboat Springs
 
-# Ikon Pass
+# Ski Passes
 ### [December 10 deadline for Ikon Purchases!](https://www.instagram.com/p/CIV8XZjAMqg/?igshid=g62hoz8d22wv)
 
-* The [Ikon Passes](https://www.ikonpass.com/en/shop-passes) seem to be some of the best value packages to get on the mountain this year
+* while it appears you [can buy day passes](https://activities.steamboat.com/Ecomm/Shop/Calendar/5371193/en-US/?productcategoryid=117&startmonth=12&startYear=2020&agecategory=8&days=1) specifically for Steamboat, I would not recommend it as they are expensive and not all days are available
+* The [Ikon Passes](https://www.ikonpass.com/en/shop-passes) seem to offer best value
 	- [4 day](https://www.ikonpass.com/en/shop-passes/ikon-session-pass-4-day-2020-2021) would probably make sense for an aggressive long weekend or a chill week
-* Day passes will NOT be sold on the mountain this year (so you need to get Ikon if you want to shred pow)
+* Day passes will ***NOT*** be sold on the mountain this year (so you need to purchase ahead of time)
 
 Grab your shred-mobile, put a time on my calendar, eat a power bar, stay healthy, swig some water, huck a quick sick 180 from normal life and fly out.
 
